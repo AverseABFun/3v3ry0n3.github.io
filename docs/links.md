@@ -11,3 +11,5 @@ Thanks for helping prevent merge conflics!
 [UwU](https://3v3ry0n3.github.io/uwu)
 
 [Hot Furries](https://3v3ry0n3.github.io/hot-furries)
+
+[List of children eaten](https://raw.githubusercontent.com/3v3ry0n3/i-eat-children-yummy-burp-/main/children%20list)
